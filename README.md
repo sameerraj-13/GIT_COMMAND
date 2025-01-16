@@ -19,8 +19,7 @@ Hi What's This
 
 Stay tuned for more command.
 - all the command are uploaded very soon.
-- In 2 to 3 days.
-
+- from basic to advance with proper defination
 ---
 
 Thanks!
